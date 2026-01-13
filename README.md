@@ -10,7 +10,7 @@ Sou **Técnico de Manutenção Industrial**, com experiência prática em sistem
 
 ### Experiência Profissional
 
-* Trabalho como **Técnico de Manutenção Industrial**, atuando na manutenção, diagnóstico e reparação de equipamentos industriais.
+* Trabalhei como **Técnico de Manutenção Industrial**, atuando na manutenção, diagnóstico e reparação de equipamentos industriais.
 * Experiência em ambientes técnicos que exigem **resolução de problemas**, análise lógica e conhecimento de eletrónica e automação.
 
 ---
